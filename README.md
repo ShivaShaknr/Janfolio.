@@ -1,1 +1,1 @@
-# Janfolio.
+# Janfolio.com
